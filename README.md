@@ -1,4 +1,4 @@
-### Hi there 👋 @coathox on telegram
+### Hi there 👋 You can reach out to me faster on Telegram [@coathox](t.me/coathox) on telegram
 <!-- @coathox on telegram
 **Berrytoxima/Berrytoxima** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
